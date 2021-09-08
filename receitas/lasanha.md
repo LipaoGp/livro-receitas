@@ -28,4 +28,3 @@
 - 1 copo (300 ml) de leite
 - 2 caixas de creme de leite
 - 1 pitada de sal
-
